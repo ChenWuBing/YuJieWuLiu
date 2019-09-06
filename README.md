@@ -1,15 +1,16 @@
-# 趣户外体育
+# 趣玩体育
 
-We specialize in a variety of fun outdoor sports and offer online bookings for quick and easy access.
+We specialize in a variety of fun outdoor adventures and offer online bookings quickly and easily.
 
 Four outdoor projects:
 
-1: "卡丁车" allows you to experience the excitement of the actual operation of the car, the real racing track for you to play.
+1: "马术" can broaden your horizons, soothe your mood, and you can achieve the effect of slimming fitness by naturally consuming excess body heat.
 
-2: “攀岩” takes you through the thrills of climbing and letting you experience more challenging activities.
+2: "射击" takes you to the thrill of real shooting, allowing you to experience more challenging activities.
 
-3: "真人CS" takes you into a different cs game, which combines the game with life more perfectly.
+3: "滑翔伞" takes you to the wonders and charm of nature and takes you to the sky.
 
-4: "丛林穿越" takes you through the wonders and charms of nature.
+4: "赛车" allows you to experience the excitement of the actual operation of the car, the real track for you to play.
 
-If you have any questions, please contact the technical support xiangyupao@foxmail.com, Thank you for your support.
+
+If you have any questions, please contact the technical support rivitt@163.com, Thank you for your support.
