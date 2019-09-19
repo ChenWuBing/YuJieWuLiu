@@ -1,4 +1,4 @@
-# 趣玩体育
+# 畅玩运动体育
 
 We specialize in a variety of fun outdoor adventures and offer online bookings quickly and easily.
 
@@ -13,4 +13,4 @@ Four outdoor projects:
 4: "赛车" allows you to experience the excitement of the actual operation of the car, the real track for you to play.
 
 
-If you have any questions, please contact the technical support rivitt@163.com, Thank you for your support.
+If you have any questions, please contact the technical support bertharafaelgnh@gmail.com, Thank you for your support.
