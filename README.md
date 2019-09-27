@@ -1,16 +1,5 @@
-# 畅玩运动体育
+# 倪尚饰品
 
-We specialize in a variety of fun outdoor adventures and offer online bookings quickly and easily.
+We are a platform for users to choose boutique and genuine jewelry. All the accessories on our platform are certified by authoritative organizations. Absolutely authentic, quality assurance. Users can rest assured to buy. Our platform accessories are divided into four types: “耳饰”，“项链”，“手饰” and “戒指”. Users are welcome to come and purchase.
 
-Four outdoor projects:
-
-1: "马术" can broaden your horizons, soothe your mood, and you can achieve the effect of slimming fitness by naturally consuming excess body heat.
-
-2: "射击" takes you to the thrill of real shooting, allowing you to experience more challenging activities.
-
-3: "滑翔伞" takes you to the wonders and charm of nature and takes you to the sky.
-
-4: "赛车" allows you to experience the excitement of the actual operation of the car, the real track for you to play.
-
-
-If you have any questions, please contact the technical support bertharafaelgnh@gmail.com, Thank you for your support.
+If you have any questions, please contact the technical support njklm261@sina.com, Thank you for your support.
